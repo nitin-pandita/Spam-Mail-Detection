@@ -1,5 +1,5 @@
 
-
+<img src="https://thumbs.gfycat.com/DeliriousBigGoldfish-size_restricted.gif" style="width:100%">
 
 <a href="" target="_blank">
 <h1 align="left">Spam Mail Detector</h1>
